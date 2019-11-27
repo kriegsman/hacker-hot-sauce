@@ -32,16 +32,16 @@ Kyonghee recommends putting this on barbebcued meats; I love it on everything fr
 
 # Directions
 
-* Mix the soy sauce, vinegar, lime juice, and molasses in a stockpot or other large pot on the stove over low heat.
-* Scoop out about one cup of the warm mixed liquids, and put it in a blender with the minced garlic.  Puree until smooth.  Pour the garlic puree back into the stockpot with the other liquids.
-* Mix the white sugar, brown sugar, and citric acid into the pot and stir until dissolved.
-* Mix the entire 3Kg box of gochujang paste into the liquids in the pot.  It won't want to mix at first, so take your time, and just keep patiently mixing until all of it is evenly blended.
-* Mix in the sesame oil.
-* Put on the gloves and goggles.  Open the windows, especially the ones that the air tends to blow _out_ of, not the ones that the wind blows _in_ through.
-* Cut open the habaneros.  Remove and discard the stems and the seeds.
-* Put the habaneros in the blender with 1 cup of water.  Put the lid firmly, carefully, and completely on the blender, and puree the habaneros in the water until compeltely smooth.  Stop the blender, and let the puree settle for a moment.  Open the blender lid near the window with the outward ventilation.
-* Add about 1/4 of the habanero puree into the big pot with the gochujang, and mix thouroughly.  Taste for heat level, and continue adding habanero puree and mixing well until you get to a nice bright zingy heat!
-* Protip: clean the cutting board and knife that you used with the habaneros, and the blender, while you still have the gloves and goggles on, and the window open.  After doing this cleanup, you can take off the protective gear.
-* Ladle the hot sauce into squeeze bottles (using the funnel) or other containers.
+1. Mix the soy sauce, vinegar, lime juice, and molasses in a stockpot or other large pot on the stove over low heat.
+2. Scoop out about one cup of the warm mixed liquids, and put it in a blender with the minced garlic.  Puree until smooth.  Pour the garlic puree back into the stockpot with the other liquids.
+3. Mix the white sugar, brown sugar, and citric acid into the pot and stir until dissolved.
+4. Mix the entire 3Kg box of gochujang paste into the liquids in the pot.  It won't want to mix at first, so take your time, and just keep patiently mixing until all of it is evenly blended.
+5. Mix in the sesame oil.
+6. Put on the gloves and goggles.  Open the windows, especially the ones that the air tends to blow _out_ of, not the ones that the wind blows _in_ through.
+7. Cut open the habaneros.  Remove and discard the stems and the seeds.
+8. Put the habaneros in the blender with 1 cup of water.  Put the lid firmly, carefully, and completely on the blender, and puree the habaneros in the water until compeltely smooth.  Stop the blender, and let the puree settle for a moment.  Open the blender lid near the window with the outward ventilation.
+9. Add about 1/4 of the habanero puree into the big pot with the gochujang, and mix thouroughly.  Taste for heat level, and continue adding habanero puree and mixing well until you get to a nice bright zingy heat!
+10. Protip: clean the cutting board and knife that you used with the habaneros, and the blender, while you still have the gloves and goggles on, and the window open.  After doing this cleanup, you can take off the protective gear.
+11. Ladle the hot sauce into squeeze bottles (using the funnel) or other containers.
 
-Refrigeration optional, but not needed.
+Refrigeration optional, but not needed.  Enjoy!
