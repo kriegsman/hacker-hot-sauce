@@ -1,4 +1,4 @@
-# Habanero-Lime Gochujang "Hacker Hot Sauce"
+# "Hacker Hot Sauce"
 
 My own recipe for habanero-lime-gochujang hot sauce, made by hackers, for hackers.
 
