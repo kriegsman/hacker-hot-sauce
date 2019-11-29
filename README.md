@@ -6,6 +6,8 @@ I fell in love with gochujang sauce the first time I had bibimbap. In the summer
 
 Kyonghee recommends putting this on barbebcued meats; I love it on everything from eggs to veggies to hot dogs.
 
+The ingredients for one batch cost about US$60 (in 2019), and can all be found at an Asian market.
+
 
 # Ingredients
 
