@@ -2,7 +2,7 @@
 
 My own recipe for habanero-lime-gochujang hot sauce, made by hackers, for hackers ... and anyone else who loves rich bright hot sauces.
 
-I fell in love with gochujang sauce the first time I had bibimbap. In the summer of 2015, with special help from my very patient, Korean-born co-worker, Kyonghee Moon, I decided to try making my own gochujang sauce.  While I loved the basic flavor, I wanted more heat and more brightness.  I turned to my old friends the habanero chili pepper and the lime, and after four or five batches adjusting the balance, I was happy with the result and finally wrote down the recipe.
+I fell in love with gochujang sauce the first time I had bibimbap. In the summer of 2015, with special help from my very patient, Korean-born co-worker, Kyonghee Moon, I decided to try making my own gochujang sauce.  While I loved the basic flavor, I wanted more heat and more brightness.  I turned to my old friends the habanero chili pepper and the lime, and after four or five batches adjusting the balance, with my hot sauce co-conspirator Rosa, I was happy with the result and finally wrote down the recipe.
 
 Kyonghee recommends putting this on barbebcued meats; I love it on everything from eggs to veggies to hot dogs.
 
@@ -24,6 +24,7 @@ Kyonghee recommends putting this on barbebcued meats; I love it on everything fr
 
 
 # Equipment
+* 8-quart or larger stock pot or other large pot; larger is easier to mix in 
 * disposable gloves
 * safety goggles
 * containers for hot sauce, e.g. squeeze bottles
