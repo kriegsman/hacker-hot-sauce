@@ -2,11 +2,13 @@
 
 My own recipe for habanero-lime-gochujang hot sauce, made by hackers, for hackers ... and anyone else who loves rich bright hot sauces.
 
-I fell in love with gochujang sauce the first time I had bibimbap. In the summer of 2015, with special help from my very patient, Korean-born co-worker, Kyonghee Moon, I decided to try making my own gochujang sauce.  While I loved the basic flavor, I wanted more heat and more brightness.  I turned to my old friends the habanero chili pepper and the lime, and after four or five batches adjusting the balance, with my hot sauce co-conspirator Rosa, I was happy with the result and finally wrote down the recipe.
+I fell in love with gochujang sauce the first time I had bibimbap at a Korean restaurant. Many years later, in the summer of 2015, with help from my very patient, Korean-born co-worker, Kyonghee, I decided to try making my own gochujang sauce.  While I loved the basic flavor, I wanted more heat and more brightness.  I turned to my old friends the habanero chili pepper and the lime, and after four or five batches adjusting the balance, with my hot sauce co-conspirator Rosa, I was happy with the result and finally published this recipe.
 
 Kyonghee recommends putting this on barbebcued meats; I love it on everything from eggs to veggies to hot dogs.
 
-The ingredients for one batch cost about US$60 (in 2019), and can all be found at an Asian market.  Assembly takes about two hours.
+
+The ingredients for one batch cost about US$60 (in 2019), and can all be found at an Asian market.  
+Assembly and cleanup takes about two hours.
 
 
 # Ingredients
