@@ -8,7 +8,7 @@ Kyonghee recommends putting this on barbebcued meats; I love it on everything fr
 
 
 The ingredients for one batch cost about US$60 (in 2019), and can all be found at an Asian market.  
-Assembly and cleanup takes about two hours.
+Assembly and cleanup takes about two hours.  Yield is roughly 15 pints, or 7 liters.
 
 
 # Ingredients
